@@ -1,1 +1,0 @@
-# an-izadwolzad
